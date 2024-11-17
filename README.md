@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **CCNA,BURPSUITE,NMAP,KALI lINUX**
 
-- 📫 How to reach me **diemttde160165@fpt.edu.vn**
+- 📫 How to reach me **thanhdiem582002@gmail.com**
 
 - ⚡ Fun fact **I know what you think :3**
 
